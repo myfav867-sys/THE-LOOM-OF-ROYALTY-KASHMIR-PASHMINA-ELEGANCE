@@ -1,3 +1,6 @@
+https://www.linkedin.com/posts/my-aai-63a8a8417_training-pashmina-kashmirart-ugcPost-7473269550591995904-g3tm/?utm_source=social_share_send&utm_medium=member_desktop_web&rcm=ACoAAGoHc44BzmvkrqGE9Uy0vzV7EFrlVNuXJNw
+
+
 # The Loom of Royalty: Kashmir Pashmina Elegance
 
 A comprehensive dataset dedicated to the exquisite world of Kashmir pashmina shawls, documenting their heritage, craftsmanship, characteristics, and cultural significance.
